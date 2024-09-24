@@ -2,7 +2,7 @@
 ## Examen
 - Codigo
 
-![image](https://github.com/user-attachments/assets/05403b38-6c5d-40be-ae5d-193da87d7d74)
+![image](https://github.com/user-attachments/assets/c496dff8-8ea4-403d-9a31-09c94e598783)
 ![image](https://github.com/user-attachments/assets/38ceb77f-cb81-4e8e-a601-d0e6170aa619)
 - Resultado
 
