@@ -6,5 +6,5 @@
 ![image](https://github.com/user-attachments/assets/38ceb77f-cb81-4e8e-a601-d0e6170aa619)
 - Resultado
 
-![image](https://github.com/user-attachments/assets/07934777-16f3-4162-8411-b1bb942f0764)
+![image](https://github.com/user-attachments/assets/797dc1e2-8015-424b-9f8f-a996a06c144a)
 
